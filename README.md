@@ -1,4 +1,4 @@
-Name: Ayjapaththu A. H. M. C. P. <br/>
+Name: Athapaththu A. H. M. C. P. <br/>
 Reg. No: 324682464 <br/>
 S-No: S24013155 <br/>
 
